@@ -1,0 +1,2 @@
+# bilalkhan365
+I am an ACCP, CFI &amp; Microsoft Certified Professional. An advanced level User of Microsoft Excel can make spreadsheets, financial data analyzing to forecast and make dynamics reports and presentation for management, having good sounds knowledge of Advance Functions of MS Excel, Power Query, Power Pivot with VBA programming skills to centralized and customized the work according to requirement. 
